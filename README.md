@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @evangelospot
-- 👀 I’m open to work and I'm searching for Unity Developer position
+- 👀 I’m open to work
 - 📫 How to reach me: https://www.linkedin.com/in/epotamianos/
 
 <!---
